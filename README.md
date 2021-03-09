@@ -1,2 +1,2 @@
-# assembleia-martin-luther
-Página temporária exibida antes do início da assembleia
+# Assembléia Martin Luther
+Aguarde a disponibilização do link da sala de reunião.
