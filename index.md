@@ -1,3 +1,5 @@
-Aguarde a disponibilização do link da sala de reunião.
+Acesse o link abaixo para entrar na sala de assembleia:
 
-Retorne aqui no dia da assembleia no dia 28/03/2021 às 11:30h.
+https://pml.lt.coop.br/AssembleiaPML
+
+ATENÇÃO: O link da sala de assembleia **só funcionará a partir de 11:20h**, não tente acessar a sala de assembleia antes deste horário.
